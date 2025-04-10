@@ -1,3 +1,3 @@
-# Photos
+# Photos and Videos
 
 
